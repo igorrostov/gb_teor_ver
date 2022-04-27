@@ -1,0 +1,1 @@
+# gb_teor_ver
